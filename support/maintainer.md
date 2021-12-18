@@ -26,6 +26,8 @@ Xiaomi Redmi Note 7 Pro (violet)- Hariprakash
 
 Xiaomi Redmi 7 (onclite)- Aditya Singh
 
+Xiaomi Mi Note 10 Lite (toco)- artemminsk
+
 Realme devices
 ------------------------------------------
 Realme 6 (RMX2001)- UdayRocker    
